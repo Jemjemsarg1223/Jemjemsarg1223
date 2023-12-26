@@ -9,3 +9,4 @@ Jemjemsarg1223/Jemjemsarg1223 is a ✨ special ✨ repository because its `READM
 You can click the Preview link to take a look at your changes.
 --->
 get more option on me if you want,just talk to my facebook account
+the right person is wrong for me cause the real person is that right 
